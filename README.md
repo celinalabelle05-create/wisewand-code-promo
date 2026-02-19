@@ -1,4 +1,4 @@
-# Wisewand : Guide Complet + Code Promo OPTMZR10 (-10% à vie)
+# Wisewand Code Promo : 10% à vie avec OPTMZR10
 
 Dans l’univers du SEO et de la production de contenu assistée par intelligence artificielle, **Wisewand** s’impose comme une solution puissante pour générer des articles optimisés, structurés et prêts à performer sur Google.
 
